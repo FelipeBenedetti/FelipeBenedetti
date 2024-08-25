@@ -1,5 +1,5 @@
 # 💫 About Me:
-desenvolvedor de software, apaixonado por criações<br>
+Software Developer<br>
 
 
 ## 🌐 Socials:
